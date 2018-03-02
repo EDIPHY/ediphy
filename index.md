@@ -1,1 +1,1 @@
-Welcome to Edbile Physiology, a precision human nutrition company.
+welcome to edbile physiology, a precision human nutrition company.
