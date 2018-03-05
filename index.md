@@ -18,6 +18,6 @@
 
 
 
-welcome to edbile physiology, a precision human nutrition company.
+welcome to edible physiology, a precision human nutrition company.
 
 hello@ediblephysiology.com
